@@ -1,1 +1,1 @@
-# II-II-Sem
+# II-II Sem
